@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @L3onar2
+- 👀 I’m interested in Artifiial inteligence and machine learning
+- 🌱 I’m currently learning how to keep myself alive
+- 💞️ I’m looking to collaborate on anything easy
+- 📫 you can dm me on discord if you are interested for some reason, im L3onar2 #7971
